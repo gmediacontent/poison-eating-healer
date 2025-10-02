@@ -1,1 +1,2 @@
-# poison-eating-healer
+# Poison-Eating Healer
+Dans un monde où les chasseurs de monstres sont considérés comme des héros, Cheon Haesun a été traité comme un paria en raison de son apparence anormale. Comme si cela ne suffisait pas, une meute de monstres attaque son quartier le jour où il découvre qu’il est en train de mourir d’une maladie inconnue. Grâce au sacrifice de sa sœur, Haesun survit et se réveille pour devenir un empoisonneur, un chasseur rare doté de pouvoirs de guérison toxiques. Mais ses pouvoirs empoisonnés vont-ils guérir la maladie de Haesun et lui garantir une vie normale dont il a toujours rêvé ?
